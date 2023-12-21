@@ -1,1 +1,1 @@
-Some reasonably good explanations is shown in the presentation
+Some reasonably good explanations are shown in the presentation
