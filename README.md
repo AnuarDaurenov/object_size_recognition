@@ -1,1 +1,1 @@
-Some reasonably good explanations are shown in the presentation (CV_FP.pdf). Also the this presentation can be found there https://docs.google.com/presentation/d/1V2O-QUn-90n1f7MlrBRDz80iO0p62qej3HNz3v6tp80/edit?usp=sharing
+Some reasonably good explanations are shown in the presentation (CV_FP.pdf). Also this presentation can be found here https://docs.google.com/presentation/d/1V2O-QUn-90n1f7MlrBRDz80iO0p62qej3HNz3v6tp80/edit?usp=sharing
